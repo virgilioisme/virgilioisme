@@ -6,7 +6,7 @@
 
 * ___working on bettering my skills and learning as much as i can!___
 
-* ___may the odds be ever in your favor👌___
+* ___may the odds be ever in your favor.👌___
 
 * ___email: ilungavirgilio@gmail.com___
 
