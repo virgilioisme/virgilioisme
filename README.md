@@ -1,5 +1,3 @@
-# virgilioisme
-
 * ___virgilio is the name___
 
 * ___instruments🎸🎹🎻 + basketball player🏀___ 
